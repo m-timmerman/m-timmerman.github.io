@@ -1,2 +1,0 @@
-# MBUYU CAPITAL BV
-MCBV webpage
